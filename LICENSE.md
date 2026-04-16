@@ -1,4 +1,4 @@
-
+secret Script for roblox bedwars - unlimited stamina and auto-farm is the best roblox bedwars Script, featuring unlimited stamina and auto-farm. Safe
 
 
 ---
